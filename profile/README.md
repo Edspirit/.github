@@ -1,3 +1,1 @@
-## edSPIRIT
-
-_Will be updated soon.._
+# Hi :wave: we are edSPIRIT!
